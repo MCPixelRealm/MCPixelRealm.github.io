@@ -1,3 +1,3 @@
 # PixelRealm
 Website soon ;)
-> Discord: https://discord.gg/QMdq9Su
+Discord: https://discord.gg/QMdq9Su
